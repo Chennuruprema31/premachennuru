@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Automation Testing SE
 - 🌱 I’m currently learning ...Software Testing
 - 💞️ I’m looking to collaborate on ...mini Projects
-- 📫 How to reach me ...Ig.@pilgrim.cpk
+- 📫 How to reach me ...here is my E-mail...prema186502@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
